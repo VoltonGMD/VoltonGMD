@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @VoltonGMD, and im new to this place :)
+- 👀 I’m interested in Geometry dash in my name if may ask
+- 🌱 I’m currently learning about gd creation ( i did some cool creation tbh)
+- 💞️ I’m looking to collaborate on Nothing :sad:
+- 📫 Use voltongmd@gmail.com to contact me or no idk if you do
+- 😄 Pronouns: Litteral pancake or he, him
+- ⚡ Fun fact: Im start play gd (geometry dash) 3 years ago (2021)
+- And Im real sad on michigun dead LEGENDNEVERDIE
